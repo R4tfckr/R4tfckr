@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @R4tfckr
+- 👀 I’m interested in fullstack development
+- 🌱 I’m currently learning React
+- 📫 How to reach me: ig -> @hlavni_postava_hlinska
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: i like goths
